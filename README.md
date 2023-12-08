@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @vikakryschuk08
+- im from Ukraine
